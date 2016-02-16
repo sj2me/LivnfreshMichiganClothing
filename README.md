@@ -1,0 +1,4 @@
+# LivnfreshMichiganClothing
+Livnfresh is a fashion and lifestyle clothing brand on a mission. Livnfresh is founded in Gaylord Michigan and they are committed to providing high quality, comfortable and fashionable Home State Pride Clothing.  For Founder Cari Samalik producing <a href="http://www.livnfresh.com/statepride/michigan/">Michigan Clothing</a> was simply about creating some clothing that was as fun and artistically beautiful as the Mitten State itself. The popularity of their Fresh Coast line of clothing soon got the interest of people from other states who wanted creative and fun designs so they launched in other states like Florida, California and Wisconsin.  More States are planning on rolling out and with a following of over 33,000 fans on Facebook, Livnfresh is poised to become the next big lifestyle brand. 
+See some of the best <a href="http://ed.ted.com/on/zuQtZ6Mb/">nicknames for Michigan</a>.
+
